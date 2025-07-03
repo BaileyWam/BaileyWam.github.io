@@ -1,5 +1,6 @@
 ## BaileyWam.github.io 
 ### Bailey's Cool, Very Cool hangout. 
+#### Introduction
 As an introduction to this new "Project" capital P, I guess we start with who I am and what this is about. My name is Bailey, and I wanted a place to write about Fantasy Football, Finance, and other stuff (Politics... maybe).  
 I have a degree in Finance from a random state school namely, _The University of South Florida_. Go Bulls. So yeah, not too extravagent to say the least. 
 
